@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @ain0128
+- 👋 Hi, I’m @ani0128
 - 👀 I’m interested in learning
-- 🌱 I’m currently learning coding
+- 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on everything
 - 📫 reach me by aniinapatial0128@gmail.com
 
